@@ -1,1 +1,1 @@
-# expo
+hii i m  seasonal trader
